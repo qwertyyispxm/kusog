@@ -1,1 +1,1 @@
-# kusog
+dumb shit
